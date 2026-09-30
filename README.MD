@@ -1,1 +1,1 @@
-![AkashiiKun's GitHub stats](https://github-readme-stats.vercel.app/api?username=AkashiiKun&count_private=true&show_icons=true&include_all_commits=true&theme=dracula)
+I don't allow anyone to continue my projects that are under ARR. I'm retiring from modding and Discord. I'm tired of everyone.
